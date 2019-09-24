@@ -20,14 +20,15 @@ https://www.youtube.com/watch?v=poZvevJFBkw
 smoke a pound on a single bound
 smoke a pound on a single bound
 smoke a pound on a single bound
+smoke a pound on a single bound
 
-again with these pointless lessons
-precious caring turned away
+here again with these pointless lessons
+precious caring turned away atone for the things you say you mute
+or something i can't tell
 
-atone for the things you say you mute
 sometimes like the things you keep
 leavin' out!
-
+following fresh on clues coz
 left it out ya
 
 ```
