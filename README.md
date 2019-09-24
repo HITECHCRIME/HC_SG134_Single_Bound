@@ -21,6 +21,15 @@ smoke a pound on a single bound
 smoke a pound on a single bound
 smoke a pound on a single bound
 
+again with these pointless lessons
+precious caring turned away
+
+atone for the things you say you mute
+sometimes like the things you keep
+leavin' out!
+
+left it out ya
+
 ```
 
 ## Lyrics Testing Ground
