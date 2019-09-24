@@ -32,8 +32,6 @@ sneezing out
 so bless you for diss
 coz you left it out ya
 
-
-
 smoke a pound on a single bound
 smoke a pound on a single bound
 smoke a pound on a single bound ya
