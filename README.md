@@ -10,7 +10,7 @@ Description. (FREE) Offset Type Beat x Freestyle Type Beat - "Tuxedo"
 
 https://www.youtube.com/watch?v=poZvevJFBkw
 
-**Title:**  / **Featuring:** 
+**Title:** Single Bound / **Featuring:** MOTHNODE
 
 **Production:** LCS / **Lyrics:** MOTHNODE
 
