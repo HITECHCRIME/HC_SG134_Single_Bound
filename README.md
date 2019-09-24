@@ -24,21 +24,22 @@ smoke a pound on a single bound ya
 
 here again with these pointless lessons
 precious caring turned away atone for the things you say you mute
-or something i can't tell
-
-sometimes like the things you keep 
+or something i can't tell sometimes 
+like the things you keep 
 leavin' out!
-following fresh on clueless 
-
+following fresh on clues 
+sneezing out 
+so bless you for diss
 coz you left it out ya
 
-sneezing out 
-so bless
+
 
 smoke a pound on a single bound
 smoke a pound on a single bound
 smoke a pound on a single bound ya
 smoke a pound on a single bound ya
+
+pupils round
 
 ```
 
