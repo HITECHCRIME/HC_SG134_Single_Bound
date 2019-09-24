@@ -19,17 +19,26 @@ https://www.youtube.com/watch?v=poZvevJFBkw
 ```
 smoke a pound on a single bound
 smoke a pound on a single bound
-smoke a pound on a single bound
-smoke a pound on a single bound
+smoke a pound on a single bound ya
+smoke a pound on a single bound ya
 
 here again with these pointless lessons
 precious caring turned away atone for the things you say you mute
 or something i can't tell
 
-sometimes like the things you keep
+sometimes like the things you keep 
 leavin' out!
-following fresh on clues coz
-left it out ya
+following fresh on clueless 
+
+coz you left it out ya
+
+sneezing out 
+so bless
+
+smoke a pound on a single bound
+smoke a pound on a single bound
+smoke a pound on a single bound ya
+smoke a pound on a single bound ya
 
 ```
 
