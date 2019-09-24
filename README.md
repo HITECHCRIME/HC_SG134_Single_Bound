@@ -6,12 +6,13 @@
 
 ## Project Data
 
-Description.
+Description. (FREE) Offset Type Beat x Freestyle Type Beat - "Tuxedo"
 
+https://www.youtube.com/watch?v=poZvevJFBkw
 
 **Title:**  / **Featuring:** 
 
-**Production:**  / **Lyrics:** 
+**Production:** LCS / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
